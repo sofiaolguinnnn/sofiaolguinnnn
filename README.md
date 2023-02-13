@@ -12,8 +12,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning highschool
 - 👯 I’m looking to collaborate on my classroom with my classmates
 - 🤔 I’m looking for help with code language
-- 💬 Ask me about 
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 💬 Ask me about cats, horror movies or Lana del Rey
+- 📫 How to reach me: i prefer instagram,wich i'll attach on my profile
+- 😄 Pronouns: she/her
