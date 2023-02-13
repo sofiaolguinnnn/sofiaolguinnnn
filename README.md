@@ -15,3 +15,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about cats, horror movies or Lana del Rey
 - 📫 How to reach me: i prefer instagram,wich i'll attach on my profile
 - 😄 Pronouns: she/her
+
+
+**he experimentado muchos casos en los que las actualizaciones no se descargan, se quedan trabadas o simplemente no hay opción de actualizarse, me sucede que el administrador de tareas ni siquiera reconoce los componentes de la computadora. 
